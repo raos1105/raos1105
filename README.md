@@ -1,1 +1,1 @@
-# Am I a loser?
+# Everybody is genius
